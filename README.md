@@ -1,9 +1,9 @@
-# Submitted from:
+## Submitted From:
 
 Marri Grace Morata
 
 Angela Mae F. Edioma
 #
-# Submitted to:
+# Submitted To:
 
 Mr. Allan Ibo Jr.
